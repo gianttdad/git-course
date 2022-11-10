@@ -2,4 +2,6 @@
 va se foder caralho
 to muito puto com essa porr
 
-att de texto
+att de text
+
+texto alteradao de savero tunada huahauahuhauhauhaua
